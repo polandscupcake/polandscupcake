@@ -27,3 +27,11 @@ Though he is friends with a space alien named Tony, he does not believe in Engla
 [ i copied all of this from the wiki dont kill me ]
 
 ![](https://i.postimg.cc/2StSx5NT/image-2024-05-24-123618923.png)
+
+
+♥︎　　🍓　　音楽　　ᘏ⑅ᘏ
+
+ᡣ ︠ 𓈒. .𓈒 ︡𐑠　　ꔫ　　🧁　　꒱ 
+
+
+⊹⊹     read  my  strawpage  about  some  of  my  oc! 🌷   ֹ     ۪   ࿙࿚⭒࿙࿚⭑
