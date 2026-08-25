@@ -1,3 +1,6 @@
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+♱⠀ ⠀ ⠀ ⠀read my socials **BYF**!⠀ ⠀ ⠀ ⠀♱ ⠀
+
 ![](https://i.postimg.cc/gjpJ6BbW/image-2024-05-24-123607978.png)
 
 America is a young man of average height with short, golden blond hair and a cowlick which represents Nantucket. He has blue eyes, and his glasses are said to represent the state of Texas. When America initially appeared in the webcomic, he was lacking the distinctive cowlick. 
