@@ -1,14 +1,14 @@
-♡⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/f08905de3d2a5e4d0322ab46557e893c/f313320928ef982c-24/s500x750/12548421d290e640feaf2c6bd63d99b9dc8edfcf.gifv)⠀ ⠀  ⠀ ⠀  ⠀   ⠀  ⠀ ⠀⠀ ⠀♡
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/a07ec48d7a71b0d6a87c91e4f072c4c6/1e685e7def8b4871-28/s2048x3072/2f65697074cd43b03a7298bdd7ff7dafb7f5bd39.pnj)⠀ ⠀  ⠀ ⠀  ⠀   ⠀  ⠀ ⠀⠀ ⠀
 
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀♥︎　　🦄　　音楽　　ᘏ⑅ᘏ
+⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀         ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀♥︎　　🦄　　音楽　　ᘏ⑅ᘏ
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀⠀  ᡣ ︠ 𓈒. .𓈒 ︡𐑠　　ꔫ　　america/england/sweden fictkin　　꒱ 
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀  ⠀⠀  ᡣ ︠ 𓈒. .𓈒 ︡𐑠　　ꔫ　　**NON**sharing poland *soul*bound　　꒱ 
 
 
-⠀ ⠀ ⠀ ⠀⠀   ⠀ ⠀ ⠀ ⠀⠀    ⠀⊹⊹     read  my  *᥉ƚrαw*pαɠe  for  my  **intro**duction! 🌷   ֹ     ۪   ࿙࿚⭒࿙࿚⭑
+⠀ ⠀ ⠀ ⠀⠀   ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀    ⠀⊹⊹     read  my  *᥉ƚrαw*pαɠe  for  my  **intro**duction! 🌷   ֹ     ۪   ࿙࿚⭒࿙࿚⭑
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ᰍ ִ ࿂ ݂ 🧁 ㅤ ｡ㅤᰊ ׅ ۪ 🍀 ꒱
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ᰍ ִ ࿂ ݂ 🧁 ㅤ ｡ㅤᰊ ׅ ۪ 🍀 ꒱
 
-♡⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://64.media.tumblr.com/b05f1ff0a1ad7328621584f4713696a1/f313320928ef982c-2f/s640x960/e50f6bd72a764d3ef0f281d143bfccd72875e505.gifv)⠀ ⠀ ⠀ ⠀ ⠀ ⠀♡
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://64.media.tumblr.com/35ab1af763332ada4c9ea098d7a41bd1/1e685e7def8b4871-e2/s2048x3072/4c30038e9780f34e99a7da56dba962cbb5369735.pnj)⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
